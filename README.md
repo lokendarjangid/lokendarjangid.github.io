@@ -1,3 +1,6 @@
-portfolio website of lokendar jangid
+Portfolio website of lokendar jangid
 
-Linkedin : [Linkedin](https://www.linkedin.com/in/lokendar-jangid)
+
+[Linkedin](https://www.linkedin.com/in/lokendar-jangid)<br>
+[Instagram](https://www.instagram.com/lokendar__jangid)<br>
+
